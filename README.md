@@ -1,0 +1,2 @@
+# curiosity---mission--the-seeding-of-sovereignty-
+A micro-mission to generate the initial $250 of pure, disposable profit earmarked exclusively for the "Hardware Evolution Fund." This is not general portfolio growth. This is a focused, aggressive, small-capacity trade or micro-task series whose sole success metric is funneling capital directly into the fund for the Mac Studio. The profit, however 
